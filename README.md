@@ -2,7 +2,7 @@
 
 🚀 Aspiring DevOps Engineer  
 💻 BCA Graduate  
-
+💻 MCA Persuing
 ---
 
 ## 🔧 Skills & Tools
